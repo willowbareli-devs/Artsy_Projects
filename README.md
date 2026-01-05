@@ -1,1 +1,0 @@
-# Artsy_Projects
